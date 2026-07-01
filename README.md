@@ -5,3 +5,7 @@ Jom
 kita
 Hancurkan
 Kapar
+
+HAncurkan
+sama
+sama
