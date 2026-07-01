@@ -5,3 +5,6 @@ Jom
 kita
 Hancurkan
 Kapar
+
+SEJAK ADA AQIL
+SAYA ADALAH GAY
