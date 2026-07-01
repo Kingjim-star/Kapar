@@ -6,5 +6,6 @@ kita
 Hancurkan
 Kapar
 
-SEJAK ADA AQIL
-SAYA ADALAH GAY
+Saya
+suka
+Michu
